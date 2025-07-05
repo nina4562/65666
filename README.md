@@ -22,4 +22,4 @@
 
 女优专属分类：轻松查看三上悠亚、河北彩花等作品全集发现更多精彩内容。页面加载快速，无广告干扰，为你提供极致流畅的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nina4562/65666 ）</span>
